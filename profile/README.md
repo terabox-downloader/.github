@@ -9,6 +9,8 @@ People use Terabox Mod APK to store photos, videos, documents, and other importa
 ## Terabox Downloader Features
 Terabox Mod APK comes with many amazing features. Here are the main ones:
 
+![terabox mod apk](https://github.com/user-attachments/assets/a1a0d8b5-063b-4b60-bcbe-9bae40b1b052)
+
 1. **Unlimited Storage**
    - The mod version removes storage limits. You can save as many files as you want without worrying about space.
 
